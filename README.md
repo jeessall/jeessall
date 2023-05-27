@@ -4,6 +4,5 @@
 - 🌱 I’m currently learning  Html, Css, js.
 - 🤔 I’m looking for help with a minha primeira vaga de programação.
 - 💬 Ask me about qualquer assunto, principalmente séries.
-- 😄 Pronouns: ela/dele
 - ⚡ Fun fact:  Toco diversos instrumentos como, baixo, violão, guitarra, teclado, ukulele e ainda vou aprender bateria.
 
